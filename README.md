@@ -1,4 +1,4 @@
-# Hi There, I'm Tran Nguyen
+# Hi There, I'm Dexter (Tran) Nguyen
 
 <div align="center">🌱 As an immigrant, I have always dreamt to become a Software Engineer. Now, I'm a senior at Cal Poly Pomona majoring in Computer Science. I also enjoy doing photography and videography in my free time. I'm looking for a full time opportunity<br><br>
 
